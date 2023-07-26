@@ -1,2 +1,1 @@
-My first readme
-My first readme
+I can do all things through christ the lord
